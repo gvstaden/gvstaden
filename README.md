@@ -6,4 +6,4 @@ Currently I am doing some courses in blockchain development and has done some co
 
 I would love to do blockchain development full-time as I currently have very limited time as I am currently employed in the health sector and work crazy hours. Sometimes I start at 8 in the morning and only get home at 12 at night, just to start again the next morning. I don't mind the hours as I am a workaholic, but I would love it more if I could devote this time to blockchain development.
 
-I can be reached by email at emailtagalong@gmail.com
+I can be reached by email at schintau (at) gmail.com
